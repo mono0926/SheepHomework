@@ -1,0 +1,1 @@
+# [Awesome Milk Typography Effect in Photoshop](http://abduzeedo.com/awesome-milk-typography-effect-photoshop)
